@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on ... <Funding companies>
 - 📫 How to reach me ...  Skype -  < baspivutoo >
                           Telegram < oscarsebastian >
-                         < twitter.com/Rebmsc02Sabbir >
-                         < facebook.com/shahid.sabbir.1 >
+                          < twitter.com/Rebmsc02Sabbir >
+                          < facebook.com/shahid.sabbir.1 >
 <!---
 ShahidSabbir/ShahidSabbir is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
