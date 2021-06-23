@@ -3,8 +3,11 @@
 - 🌱 I’m currently learning ... [B2B and B2C Marketing and sales] <cash advance Programme> based on merchant cash advance (MCA)...
 - 💞️ I’m looking to collaborate on... [Funding companies]
 - 📫 How to reach me ...  
-                          Skype -  < baspivutoo >
+  
+  
 
+                          Skype    < baspivutoo >
+  
                           Telegram < oscarsebastian >
   
                           < twitter.com/Rebmsc02Sabbir >
